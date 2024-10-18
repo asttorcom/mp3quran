@@ -1,2 +1,3 @@
-# mp3quran
-Mp3 Quran
+# [mp3 quran](https://surahquran.com/Download-Quran-mp3.html)
+<p>القرآن الكريم صوت quran mp3 ( قران mp3 ) | تحميل القران الكريم كاملا mp3 بجودة عالية بصوت أشهر قراء العالم الاسلامي , استماع و تحميل اجمل اصوات القرآن الكريم mp3 و المصحف الشريف بالتجويد , تنزيل القرآن الكريم كامل على الجوال فقط اختر مصحف قارئك المرتل أو تجويد لتنزيل القرآن بشكل مجاني (سمعنا قرآن). </p>
+<a href=https://surahquran.com/quran-khashie.html>✅ تلاوات خاشعة</a> - ✅ <a href=https://surahquran.com/qura.html>جميع قراء القرآن</a> - ✅ <a href=https://surahquran.com/quran-mp3-full.html>المصاحف الكاملة mp3</a> - ✅ <a href=https://surahquran.com/Radio-Quran-Cairo.html>اذاعة القرآن الكريم</a>
